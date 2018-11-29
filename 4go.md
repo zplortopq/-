@@ -6,6 +6,8 @@
 ------
 :star: :point_right: 【地址三】 ：http://www.100jpzy.com
 ------
+:star: :point_right: 【BT地址】 ：http://www.1090bt.com
+------
 :star: :point_right: 【大陆地址发布页】 ：http://www.4go.top
 ------
 :bangbang:重要提醒:bangbang:请立即收藏本页面，避免走丢！
